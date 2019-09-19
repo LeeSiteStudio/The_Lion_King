@@ -1,0 +1,1 @@
+Simba is an African lion who lives in the Great Circle of Life. He is the son of King Mufasa and Queen Sarabi and is next in line for the crown.

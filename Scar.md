@@ -1,0 +1,1 @@
+Mufasa's younger brother, Scar, plotted against him and used a stampede to endanger Simba. 
